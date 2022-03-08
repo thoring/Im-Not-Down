@@ -17,3 +17,12 @@ So you rock and around and think that you're the toughest
 In the world, the whole wide world
 But you're streets away from where it gets the roughest
 You ain't been there
+
+I've been beat up, I've been thrown out
+But I'm not down, no, I'm not down
+I've been shown up, but I've grown up
+And I'm not down, no, I'm not down (hey)
+No, I'm not down, no, I'm not down
+No, I'm not down, no, I'm not down
+No, I'm not down, no, I'm not down
+No, I'm not down, I'm not down
